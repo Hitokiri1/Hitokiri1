@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... playing quaver 
 - 🌱 I’m currently learning ... how to play chess
 - 💞️ I’m looking to collaborate on ... quever its a reallly fun game
-- 📫 How to reach me ... just be your self 
+- 📫 How to reach me ...  discord Hitokiri#6635
 
 <!---
 Hitokiri1/Hitokiri1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
